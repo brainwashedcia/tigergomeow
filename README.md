@@ -2,7 +2,7 @@
 
 **BEFORE U INTERACT/INFO ABOUT ME!**
 
-- I RELALY LIKE GETTING CALLED BY MY HVYKINS NAME !!! such as **cahir/black knight/nilfgaardian** *(only use yhe nilfgaardian if youa re closw)* ***simon/riley/lt*** *(idrc but i kin ghost from cod)* , ***horangi!! or kim hong-jin*** *(really reccomeneded)* , ***heh.. bell form cod:bocw*** , ***megumi/fushiguro*** , ***yuuta/yuta/okkotsu*** , ***jaskier/dandelion*** *(yes. im the witcher fan and i rrally2 love the witcher)* ***lo'ak*** , ***kiri*** , **matt** , soundwave *(dontreally use this)* , jazz *(rarely hah...)* , 
+- I RELALY LIKE GETTING CALLED BY MY HVYKINS NAME !!! such as ***bell*** *(as in the codbo:cw)* **cahir/black knight/nilfgaardian** *(only use yhe nilfgaardian if youa re closw)* ***simon/riley/lt*** *(idrc but i kin ghost from cod)* , ***horangi!! or kim hong-jin*** *(really reccomeneded)* , ***heh.. bell form cod:bocw*** , ***megumi/fushiguro*** , ***yuuta/yuta/okkotsu*** , ***jaskier/dandelion*** *(yes. im the witcher fan and i rrally2 love the witcher)* ***lo'ak*** , ***kiri*** , **matt** , soundwave *(dontreally use this)* , jazz *(rarely hah...)* , you can ask me for more ! i prefer these tho
 - i'll be like really shy or awkward meeting new people... ^_^
 - i'm a socially awkward freak haha..
 - i might said something vulgars like swear words ... and body parts *(not really tthat often)* if that makes u uncomf pls tell me if u are uncomf!
@@ -13,12 +13,13 @@
 - i'm a yapper!... like if **YOU** mentioned my favourite FANDOM! i would yap about it...! sorry if u got tired .. just tell me if u want to talk without me interrupting!
 - pls don't **ignore me** i have ***attachment issues... and trust issues..*** sorry if u tried to convinve me so bad but i still dont want to trust .. :((
 - INTERACT WITH ME !! even if ur shy af...
-- I LOVE GETTING COMPLEMENTED !! such as crowns and pretty!! *(as in pony..)*
+- I LOVE GETTING COMPLIMENTED !! such as crowns and pretty!! *(as in pony..)*
 - currently rentry is outdated *(THAT THING IS SO OLD)* so i'll might make it later
 - i might have bpd *(took a quiz of it and i got 50-79..)* and bipolar too *(64-81..)* , adhd *(44-68)* , autism ... *(64-68)* ocd too haha... *(84-100)*
 - i have angry issue or passive aggression , if you made me upset or smth ur gnna get a silent treatment from me. sorry
 - woking on my matching l. macthing ,.lmagching rentry with @jerslem 
 - healing from past traumas :)
+- ts so ass why did i made this oh god
 ## **INT PLS!!!**
 
 - ***the witcher***
@@ -35,7 +36,7 @@
 - ***residnet evil***
 - **dead plate**
 - *transformers*
-- ***call of duty*** *(heavily fixated)* ***mw2 mw 3!!*** *(gonna continue playing the others)*
+- ***call of duty*** *(heavily fixated)* ***mw2 mw 3 , bo:cw !!*** 
 - ***i feakky forgot the others sm.hn,..h;...***
 
 ## **DO NOT INTERACT..**
